@@ -1,4 +1,5 @@
-<img width="200" height="200" alt="IMG_2954" src="https://github.com/user-attachments/assets/81c6fe65-4fc2-4bcc-b8b7-006d742d3aab" />
+<img width="600" height="200" alt="IMG_2955" src="https://github.com/user-attachments/assets/6683d3ff-7d48-4d88-b1d2-f3e7fe488ef1" />
+
 
 why, hello! my name is nyctrilite! (or starspekz lol)
 
