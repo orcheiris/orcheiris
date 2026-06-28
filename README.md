@@ -2,7 +2,7 @@
 
 why, hello! my name is nyctrilite! (not really starspekz lol) ★ you can call me Vexkunz, Picklesplitz, Blitz, or Verity
 
-<img width="540" height="540" alt="IMG_0796" src="https://github.com/user-attachments/assets/ad48492a-d46c-4b7d-8621-c95a2420e39e" />
+<img width="540" height="540" alt="IMG_0796" src="https://github.com/user-attachments/assets/cb4a05ee-45e5-4326-b83d-4922e382a410" />
 
 I do not support a problematic person if i follow them on github as well as a d4rk or pr0 sh1h3ppers.
 🌙 dni if u have a problem with me i do not want to start any chaos.
