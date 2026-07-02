@@ -15,4 +15,4 @@ I do not support a problematic person if i follow them on github as well as a d4
 
 <img width="400" height="228" alt="IMG_3170" src="https://github.com/user-attachments/assets/ab190a25-53c8-462c-b49f-ac9647c5a672" />
 
-<img width="924" height="105" alt="IMG_3330" src="https://github.com/user-attachments/assets/2db91817-ccd2-4442-961f-94d4559411a5" />
+<img width="924" height="105" alt="IMG_3330" src="https://github.com/user-attachments/assets/67d48fb8-8048-47e8-93c1-cf9c5c3153a1" />
