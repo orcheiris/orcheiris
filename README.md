@@ -2,7 +2,7 @@
 
 <img width="400" height="228" alt="IMG_3167" src="https://github.com/user-attachments/assets/fd4cd6c3-8838-4b19-846d-660705038068" />
 
-why, hello! my name is Quinn! (or Apex lol) ★ you can call me Vexkunz, Picklesplitz, Blitz, or Arc !!! sometimes I'll switch between Three and Cyn but mostly I'll stick to Three <3
+why, hello! my name is Quinn! (or Apex lol) ★ you can call me Vexkunz, Picklesplitz, Cyn, Blitz, or Arc !!! sometimes I'll switch between Three and Cyn but mostly I'll stick to Three <3
 
 <img width="400" height="228" alt="IMG_3169" src="https://github.com/user-attachments/assets/9c734517-228c-4f20-bec0-a7198d73d3cb" />
 
