@@ -4,7 +4,9 @@
 
 why, hello! my name is Apex ★ you can call me Vexkunz, Picklesplitz, Cyn, Blitz, or Arc !!! sometimes I'll switch between Three and Cyn but mostly I'll stick to Three <3
 
-<img width="400" height="228" alt="IMG_3169" src="https://github.com/user-attachments/assets/9c734517-228c-4f20-bec0-a7198d73d3cb" />
+<img width="730" height="99" alt="IMG_4091" src="https://github.com/user-attachments/assets/d640133f-7b69-4887-a7ee-18137d78c9b4" />
+
+<img width="74" height="18" alt="IMG_4088" src="https://github.com/user-attachments/assets/ddf3cec8-3dc5-4a27-8311-ca45dabcc346" /> <img width="74" height="18" alt="IMG_4090" src="https://github.com/user-attachments/assets/8e89da86-97e9-4ae8-8b4c-0cfedd5c31af" /> <img width="74" height="18" alt="IMG_4089" src="https://github.com/user-attachments/assets/2bb62b0e-f920-4eaa-a5ac-794384bcaf7c" />
 
 <img width="2048" height="1536" alt="IMG_3327" src="https://github.com/user-attachments/assets/b313beb1-52c7-42c0-8536-1b28f572e003" />
 
