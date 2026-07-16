@@ -10,6 +10,8 @@ why, hello! my name is Apex ★ you can call me Vexkunz, Picklesplitz, Cyn, Blit
 
 <img width="1215" height="66" alt="IMG_4020" src="https://github.com/user-attachments/assets/a7e26d45-c550-47c8-b547-b6b03f6c4982" />
 
+<img width="74" height="18" alt="IMG_4088" src="https://github.com/user-attachments/assets/1b896c33-5cc1-4445-ac27-0ed8ebec043e" /> <img width="74" height="18" alt="IMG_4090" src="https://github.com/user-attachments/assets/f16dea27-1796-4bef-a81f-f8166d02f8bc" /> <img width="74" height="18" alt="IMG_4089" src="https://github.com/user-attachments/assets/f73b2514-ef25-49d0-a1fe-c655db61890c" />
+
 I do not support a problematic person if i follow them on github as well as a d4rk or pr0 sh1h3ppers.
 📕 dni if u have a problem with me i do not want to start any chaos.
 
