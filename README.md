@@ -15,6 +15,5 @@ why, hello! my name is Apex ★ you can call me Vexkunz, Picklesplitz, Cyn, Blit
 I do not support a problematic person if i follow them on github as well as a d4rk or pr0 sh1h3ppers.
 📕 dni if u have a problem with me i do not want to start any chaos.
 
-<img width="150" height="84" alt="IMG_3115" src="https://github.com/user-attachments/assets/9068007d-603d-442f-8297-d8aa588229b9" /> <img width="98" height="56" alt="IMG_3116" src="https://github.com/user-attachments/assets/5d79e7a4-1cfd-414b-b4e8-ca84f9582285" /> <img width="150" height="84" alt="IMG_3117" src="https://github.com/user-attachments/assets/c5db1c54-9752-4b73-8839-156188062603" /> <img width="95" height="51" alt="IMG_3129" src="https://github.com/user-attachments/assets/f5e12322-5380-4f02-8c3e-4dcc24d21637" /> <img width="99" height="56" alt="IMG_3119" src="https://github.com/user-attachments/assets/db3b33e7-237c-4808-ba01-20fdaf7e296d" /> <img width="600" height="350" alt="IMG_3120" src="https://github.com/user-attachments/assets/e3535fa7-afaf-4b4a-a69f-71b6bdda6c9d" /> <img width="150" height="84" alt="IMG_3121" src="https://github.com/user-attachments/assets/97aa219a-8638-49b3-aa7d-7de85578cf39" />
 
 <img width="977" height="282" alt="IMG_4102" src="https://github.com/user-attachments/assets/d1f32bf4-3a25-432e-86ea-86d7c864b620" />
