@@ -3,7 +3,7 @@
 <img width="99" height="56" alt="IMG_4095" src="https://github.com/user-attachments/assets/952cbdb1-9eeb-4c01-8796-718ce2fe4762" /> <img width="99" height="56" alt="IMG_4096" src="https://github.com/user-attachments/assets/04481339-577d-4462-b454-b3c2c7131b97" /> <img width="99" height="56" alt="IMG_4097" src="https://github.com/user-attachments/assets/45e3a9da-9dc1-43ca-9bab-fd073d0f68fa" /> <img width="100" height="60" alt="IMG_2334" src="https://github.com/user-attachments/assets/c490918c-9460-4d76-a9e3-5eb7cd5c2775" /> <img width="100" height="60" alt="IMG_2335" src="https://github.com/user-attachments/assets/84a06380-2340-46da-82c8-cd0c1b03bb0f" /> <img width="100" height="60" alt="IMG_2337" src="https://github.com/user-attachments/assets/bdb89021-6025-4772-bac7-a82d6b83ea93" /> <img width="100" height="60" alt="IMG_2339" src="https://github.com/user-attachments/assets/9eba79ab-9148-4b5b-b608-c872eb779d77" />
 
 𝙽𝚊𝚖𝚎’𝚜 𝙸𝚗𝚍𝚒𝚐𝚘 | 𝚂𝚑𝚎/𝚃𝚑𝚎𝚢/𝙷𝚎 𝙼𝚒𝚗𝚘𝚛 𝙰𝚗𝚒𝚖𝚊𝚝𝚘𝚛, 𝙰𝚛𝚝𝚒𝚜𝚝, 𝚆𝚛𝚒𝚝𝚎𝚛 | 𝙸𝚗 𝚕𝚘𝚝𝚜 𝚘𝚏 𝚏𝚊𝚗𝚍𝚘𝚖𝚜+𝚊𝚞𝚜 
-Nicknames: Crater, Vex, Pickles, Blitz, etc. I don’t care what you call me as long as it’s not offensive.
+𝚈𝚘𝚞 𝚌𝚊𝚗 𝚊𝚕𝚜𝚘 𝚌𝚊𝚕𝚕 𝚖𝚎 𝙲𝚛𝚊𝚝𝚎𝚛, 𝚅𝚎𝚡, 𝙿𝚒𝚌𝚔𝚕𝚎𝚜, 𝙱𝚕𝚒𝚝𝚣, 𝚎𝚝𝚌. 𝙸 𝚍𝚘𝚗’𝚝 𝚌𝚊𝚛𝚎 𝚠𝚑𝚊𝚝 𝚢𝚘𝚞 𝚌𝚊𝚕𝚕 𝚖𝚎 𝚊𝚜 𝚕𝚘𝚗𝚐 𝚊𝚜 𝚒𝚝’𝚜 𝚗𝚘𝚝 𝚘𝚏𝚏𝚎𝚗𝚜𝚒𝚟𝚎.
 
 <img width="730" height="99" alt="IMG_4098" src="https://github.com/user-attachments/assets/ad34c5ae-a6b9-4299-ae38-d4575f1bac52" />
 
